@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @SANJAY-P-M
 - 👀 I’m interested in learning new things what domain it may be.
-- 💞️ I’m looking to collaborate on website creation.
 - 📫 Reach me on linkedin https://www.linkedin.com/in/sanjay--murugesan/ .
 
 <!---
